@@ -1,5 +1,3 @@
-![2](https://github.com/user-attachments/assets/f7bd35b8-3149-4d91-a7a4-b71198485f3e)
-
 ![3](https://github.com/user-attachments/assets/defa1b85-858f-4021-98a1-8a20f5802800)
 
 <div align="center">
